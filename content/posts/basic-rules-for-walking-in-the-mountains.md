@@ -44,27 +44,131 @@ seo:
       relativeUrl: true
 layout: post
 ---
+In my official writers bio, I mention I’m working class. That’s a 
+bold thing to do. Some might even say it’s ‘peculiar’. Shouldn’t I be 
+embarrassed or something? It’s called ‘humble origins’ not ‘*tell the world* origins’.
 
-In the United States, Canada, the Republic of Ireland, and United Kingdom, **hiking** refers to walking outdoors on a trail, or off trail, for recreational purposes. A day hike refers to a hike that can be completed in a single day. However, in the United Kingdom, the word walking is also used, as well as rambling, while walking in mountainous areas is called hillwalking. In Northern England, Including the Lake District and Yorkshire Dales, fellwalking describes hill or mountain walks, as fell is the common word for both features there.
+And anyway, who *is* working class these days? Everyone is middle class now – and nobody say otherwise; nobody wants a class revolt on their hands.
 
-Hiking can sometimes involves bushwhacking and hiking is sometimes referred to as such. This specifically refers to difficult walking through dense forest, undergrowth, or bushes, where forward progress requires pushing vegetation aside. In extreme cases of bushwhacking, where the vegetation is so dense that human passage is impeded, a machete is used to clear a pathway. The Australian term bushwalking refers to both on and off-trail hiking. Common terms for hiking used by [New Zealanders](https://en.wikipedia.org/wiki/New_Zealand) are tramping (particularly for overnight and longer trips), walking or bushwalking. Trekking is the preferred word used to describe multi-day hiking in the mountainous regions of India, Pakistan, Nepal, North America, South America, Iran and in the highlands of East Africa. Hiking a long-distance trail from end-to-end is also referred to as trekking and as thru-hiking in some places. In North America, multi-day hikes, usually with camping, are referred to as [backpacking](https://en.wikipedia.org/wiki/Backpacking_(wilderness)).
+The
+ fact is that I do not feel the least embarrassed by my origins, though 
+it might surprise you how often people seem to think I should.
 
-## Long Distance Hiking
+I 
+enjoy being working class. I get to express emotions. I get to ride 
+public transport with grace and confidence. Police are always around 
+when I need them, and I’m always being told how marvelously I’m doing. 
+Also, I can make sociopathic jokes and nobody really panics. Nobody 
+expects me to go to therapy, and if I’m feeling gloomy, I can get very 
+drunk and get into a fistfight. Which I just think is a lot less fuss.
 
-Frequently nowadays long distance hikes (walking tours) are undertaken along long distance paths, including the National Trails in England and Wales, the National Trail System in the USA and The Grande Randonnée (France), Grote Routepaden, or Lange-afstand-wandelpaden (Holland), Grande Rota (Portugal), Gran Recorrido (Spain) is a network of long-distance footpaths in Europe, mostly in France, Belgium, the Netherlands and Spain. There are extensive networks in other European countries of long distance trails, as well as in Canada, Australia, New Zealand, Nepal, and to a lesser extent other Asiatic countries, like Turkey, Israel, and Jordan. In the Alps of Austria, Slovenia, Switzerland, Germany, France, and Italy walking tours are often made from 'hut-to-hut', using an extensive system of mountain huts.
+These
+ days, however, almost all my mates are a few classes above me. They do 
+yoga and eat only organic foods, and dress like they’re about to summit a
+ mountain. And I like that; I appreciate it from a respectful distance. 
+“You do you, etcetera.”
 
-In the late 20th-century there has been a proliferation of official and unofficial long distance routes, which mean that hikers now are more likely to refer to using a long distance way (Britain), trail (USA), The Grande Randonnée (France), etc., than setting out on a walking tour. Early examples of long distance paths, include the Appalachian Trail in the USA and the Pennine Way in Britain. Pilgrimage routes are now treated, by some walkers, as long distance routes, and the route taken by the British National Trail the North Downs Way closely follows that of the Pilgrims' Way to Canterbury. Hiking times can be estimated by Naismith's rule or Tobler's hiking function.
+But I’m not changing, and the reason is 
+that I refuse to wear polo shirts. In fact, I have never owned a polo 
+shirt in my life. I don’t even own a shirt with those cloth triangles 
+near the neck – you know, the *magical triangles* that confer respectability.
 
-## Equipment
+Besides,
+ being working class isn’t too different. Whenever I feel under the 
+weather, I go to my doctor like anyone else. Mind you, she’s a friend of
+ mine, and I go to her because she’s nice, and she also doesn’t charge 
+me any money – which I happen to think is clever of me. Of course, when *she* feels under the weather – my doctor, I mean – well, *she* goes to an acupuncturist and has her *chi* realigned.
 
-The equipment required for hiking depends on the length of the hike, but day hikers generally carry at least water, food, a map, and rain-proof gear. Hikers usually wear sturdy hiking boots for mountain walking and backpacking, as protection from the rough terrain, as well as providing increased stability. The Mountaineers club recommends a list of "Ten Essentials" equipment for hiking, including a compass, sunglasses, sunscreen, a flashlight, a first aid kit, a fire starter, and a knife. Other groups recommend items such as hat, gloves, insect repellent, and an emergency blanket. A GPS navigation device can also be helpful and route cards may be used as a guide.
+You see how class differences can be subtle?
 
-> Returning home is the most difficult part of long-distance hiking; You have grown outside the puzzle and your piece no longer fits. ― Cindy Ross
+All
+ the same, the middle class has a certain attraction some days, even to 
+people like me. Somehow, last year, my doctor convinced me to try yoga. 
+I’m not prepared to talk about that yet. Still a bit traumatised.
 
-Proponents of ultralight backpacking argue that long lists of required items for multi-day hikes increases pack weight, and hence fatigue and the chance of injury. Instead, they recommend reducing pack weight, in order to make hiking long distances easier. Even the use of hiking boots on long-distances hikes is controversial among ultralight hikers, because of their weight.
+But my situation is interesting because I’m a working class *Australian* living in a recently gentrified town in the United States. When I bought this house, there were rats in the basement [(so … many … rats)](https://stgabriel.io/stories/the-rat-lietenant-is-dead/)
+ and the house reeked of urine. Two years after I moved in, all the 
+heroin dealers moved out of the area and the streets filled with 
+professors, lawyers and medical professionals. It’s still okay, though.
 
-## Environmental Impact
+So
+ it should be understandable that ‘issues of class’ are frequently on my
+ mind. And concerns come in all directions. Back in Australia, the very 
+fact I’m over here writing books is a *bit* of an awkward subject
+ with the family. Not a month has gone by, probably, in which I haven’t 
+taken a call from some distant, well-meaning relative who’s worried 
+about this ‘writing books stuff’.
 
-Natural environments are often fragile, and may be accidentally damaged, especially when a large number of hikers are involved. For example, years of gathering wood can strip an alpine area of valuable nutrients. and some species, such as martens or bighorn sheep, are very sensitive to the presence of humans, especially around mating season. Generally, protected areas such as parks have regulations in place to protect the environment, so as to minimize such impact. Such regulations include banning wood fires, restricting camping to established camp sites, disposing or packing out faecal matter, and imposing a quota on the number of hikers. Many hikers espouse the philosophy of Leave No Trace, following strict practices on dealing with food waste, food packaging, and other impact on the environment.
+*Wouldn’t I be much happier 
+if I came back and joined the police force? Or the army? Because 
+‘creativity is fine, but let’s be realistic’, etcetera*.
 
-Human waste is often a major source of environmental impact from hiking, and can contaminate the watershed and make other hikers ill. 'Catholes' dug 10 to 25 cm (4 to 10 inches) deep, depending on local soil composition and covered after use, at least 60 m (200 feet) away from water sources and trails, are recommended to reduce the risk of bacterial contamination. [Source](https://en.wikipedia.org/wiki/Hiking)
+I get
+ it, though. My people don’t chuck in the towel and write books. And so 
+until I do stop writing books and get sensible, I shall be known in 
+family circles as ‘Uncle Kris Who Lives in America and Works With 
+Computers, Now Stop Asking Questions’.
+
+No, really; I’m 
+sympathetic. My mum cleaned motel rooms in Toowoomba and my father stole
+ cars for a living – or, ‘repossessed’ them, as I call it, because two 
+can play at that game, Dad.
+
+But I’m being serious when I say that 
+working-class people everywhere have to be realistic. I believe that 
+devoutly. Something motivates me to continue writing books, anyway. 
+There has to be more to life for my social caste than shutting up and 
+keeping one’s head down. And more than that, I hate the way the book 
+industry was colonised by the upper class.
+
+I mean, have you *read* what *they* write, when they’re being witty? Of course you have. It can’t be avoided.
+
+It’s
+ pages and pages of mid-life uncertainties. Endless neuroses and 
+confessions of domestic haplessness. The tribulations of being unable to
+ fix a faucet at one’s summer home on Cape Cod. Masculinity, as 
+befuddled as it is fragile.
+
+Supposedly we all flounder in unease, 
+wracked with racial guilt, flummoxed by the contents of a toolbox. I 
+should be in my second home by now, yellow cardigan draped over my 
+shoulders, tapping with two fingers at an antique typewriter — a gift, 
+no doubt, from a supportive parent — and daydreaming of the Great 
+American Novel that I shall never write, set in some coastal town with 
+deep, dark secrets.
+
+And I should be sending short stories in stiff, yellow envelopes to *The NewYorker*, where editors pee with delight at such scintillating drollery.
+
+If I could, I would drown that genre in a lake.
+
+And here’s another thought — Harvard University existed for 383 years before anybody published a satire about it. [And the person who wrote it was me.](https://www.amazon.com/gp/product/B07LFLZDWQ) So here’s my question: why didn’t *they*
+ do it? I mean, Harvard was right there in front of them for almost four
+ centuries – a big juicy target – and it’s not like the place was 
+unfamiliar territory to them. So why not?
+
+Well, the answer to the question, I suspect, might be found in the following story.
+
+Once
+ upon a time I was a software engineer in the Center of Biomedical 
+Informatics – Fourth Floor, Countway Library, Harvard Medical School, 10
+ Shattuck Street, Boston.
+
+Picture me there, attired not in a polo shirt but a tee shirt, woolen beanie and a hoodie, looking dutifully scruffy.
+
+I have just received an email from my wayward boss, asking me to interview a prospective intern. “Why, man?” I message him in response. 
+
+“Because I’m in San Francisco,” he replies. I type: “Goddamn it alright, but as usual you owe me.”
+
+The candidate turns up eight minutes late. He wears boat shoes and no socks. And under a sports jacket, a pink polo shirt.
+
+He’s relaxed. Actually, no — he’s bored. Bored to be there, bored to endure this interview. He yawned at me a few times and eventually asked if I could speed the process along. 
+
+I asked if he was in a hurry. He said he had to meet his grandmother; they were flying to The Vineyard, you see. Martha’s? Yes.
+
+I asked him about his hobbies and he confided that he was a remarkably talented artist. Excellent. So, I fetched him paper and a pencil and requested he draw me a picture. He asked me why. I replied, “I would like to assess your ability to self-assess.” He sort of rolled his eyes at that and proceeded, inexpertly, to draw me a picture of what he assured me was a werewolf.
+
+I sent him on his way.
+
+The following week, I hired a cool, middle class kid from the suburbs of New Jersey. Not two years later, that kid was working at CERN in 
+Switzerland. Nowadays, he builds particle colliders. You see, I am very good at interviewing people. I also self-assess brilliantly, and I can 
+draw werewolves like it’s my job.
