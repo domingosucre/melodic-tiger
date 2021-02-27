@@ -55,8 +55,7 @@ And anyway, who *is* working class these days? Everyone is middle class now – 
 
 The fact is that I do not feel the least embarrassed by my origins, though it might surprise you how often people seem to think I should.
 
-I 
-enjoy being working class. I get to express emotions. I get to ride 
+I enjoy being working class. I get to express emotions. I get to ride 
 public transport with grace and confidence. Police are always around 
 when I need them, and I’m always being told how marvelously I’m doing. 
 Also, I can make sociopathic jokes and nobody really panics. Nobody 
