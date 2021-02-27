@@ -62,8 +62,7 @@ Also, I can make sociopathic jokes and nobody really panics. Nobody
 expects me to go to therapy, and if I’m feeling gloomy, I can get very 
 drunk and get into a fistfight. Which I just think is a lot less fuss.
 
-These days, however, almost all my mates are a few classes above me. They do 
-yoga and eat only organic foods, and dress like they’re about to summit a
+These days, however, almost all my mates are a few classes above me. They do yoga and eat only organic foods, and dress like they’re about to summit a
  mountain. And I like that; I appreciate it from a respectful distance. 
 “You do you, etcetera.”
 
