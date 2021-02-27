@@ -53,9 +53,7 @@ embarrassed or something? It’s called ‘humble origins’ not ‘*tell the wo
 
 And anyway, who *is* working class these days? Everyone is middle class now – and nobody say otherwise; nobody wants a class revolt on their hands.
 
-The
- fact is that I do not feel the least embarrassed by my origins, though 
-it might surprise you how often people seem to think I should.
+The fact is that I do not feel the least embarrassed by my origins, though it might surprise you how often people seem to think I should.
 
 I 
 enjoy being working class. I get to express emotions. I get to ride 
